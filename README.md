@@ -1,6 +1,6 @@
 <h1>ShowMoreVR Official APK - Note Designs</h1>
 <h1>ShowMoreVR Will Most Likely Be Discontinued</h1>
-<p>Not to be shared.</p>
+<p>i had faith in smvr, but i just got so busy that i couldnt even do anything. I will most likely discontinue this. </p>
 
 <h1></h1>
 This APK incudes:
